@@ -12,7 +12,7 @@
 
 ##Social Links:
 
-Youtube:[Youtube]
+[Youtube] : Follow Me On Youtube
 
 
 
