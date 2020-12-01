@@ -10,7 +10,7 @@
 - ⚡ Fun fact: Youtube , Sailor
 -->
 
-##Social Links:
+## Social Links:
 
 [Youtube] : Follow Me On Youtube
 
